@@ -1,1 +1,0 @@
-# chatGPT.github.io
